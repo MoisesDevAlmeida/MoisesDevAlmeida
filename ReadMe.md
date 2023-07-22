@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Estudando de Analise e Desenvolvimento de sistemas<br>👯 Estou a procura de Estagio<br>🌱 Atualmente estou estudando<br>
+🔭 Estudando de Analise e Desenvolvimento de sistemas<br>👯 A procura de um Estagio<br>🌱 Atualmente estou estudando<br>
 
 
 ## 🌐 Socials:
